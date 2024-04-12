@@ -16,7 +16,7 @@ Apple pie with topping in the Dutch style and no crust, the way God intended.  M
 - 4 tsp vanilla extract
 - 4 tbsp butter, diced (56g)
 
-## Topping
+### Topping
 - 2 cups flour (240g)
 - 1 cup white or brown sugar (184g)
 - 1-2 tsp cinnamon, optional

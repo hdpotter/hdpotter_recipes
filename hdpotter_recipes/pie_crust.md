@@ -7,7 +7,7 @@ Mother recommends waiting to put the filling into the shell until you're ready t
 - 1/8 tsp salt
 - 6 tbsp cold butter, cut into small pieces
 - 1 egg yolk
-- 2 tbsp water
+- 2 tsp water
 
 ## Steps
 1. mix flour and salt

@@ -3,7 +3,7 @@
 The blueberries are never cooked in this recipe.  Sometimes mixture will take a long time to boil and thicken; you can risk turning the heat up to medium-high if you become impatient.
 
 ## Ingredients
-- 3/4 cup sugar
+- 144g sugar (3/4 cup)
 - 3 tbsp cornstarch
 - 1/8 tsp salt
 - 1 cup water
